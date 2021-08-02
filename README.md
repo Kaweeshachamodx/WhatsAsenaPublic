@@ -16,15 +16,15 @@
 
 **[@Phaticusthiccy](https://github.com/Phaticusthiccy)**
 
-**[@KAWEESHA CHAMOD](https://github.com/Kaweeshachamodx)**
+**[@Mr.CHABI](https://github.com/MrChaby)**
 
 ### What Is WhatsAsenaPublic
 
-**▪︎ The [Modified Version](https://github.com/TOXIC-DEVIL/WhatsAsenaPublic) Of [WhatsAsenaDuplicated](https://github.com/Phaticusthiccy/WhatsAsenaDuplicated)**
+**▪︎ The [Modified Version](https://github.com/Kaweeshachamodx/WhatsAsenaPublic) Of [WhatsAsenaDuplicated](https://github.com/Phaticusthiccy/WhatsAsenaDuplicated)**
 
 **▪︎ You Have the All Rights To Re-Edit This Ropo**
 
-**▪︎ Modified By [TOXIC DEVIL](https://github.com/TOXIC-DEVIL)**
+**▪︎ Modified By [KAWEESHA CHAMOD](https://github.com/Kaweeshachamodx)**
 
 **▪︎ Added More Commands**
 
